@@ -1,0 +1,2 @@
+# shota
+Shota PFP NFTs
